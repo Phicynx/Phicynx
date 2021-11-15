@@ -1,0 +1,6 @@
+
+Hi, I'm Phicynx you might know me from Movies like... I'm actually not in movies...But I was in a commercial once!! ...Ok, that was also a lie... 
+I'm interested in women. Oh it's not this kind of interested? Then Python! I like Python!
+I'm currently learning the art of learning itself. Oh yeah, and Python! Because I like Python!
+I'm looking to collaborate on a how to become rich quick schema. I actually hate hard work. I do like money though... And Python!
+How to reach me? If its meant to be, our paths will cross again... Leave your e-mail though, otherwise I don't think our paths will cross again...
